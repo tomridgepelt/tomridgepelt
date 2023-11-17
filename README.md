@@ -1,4 +1,4 @@
-- hello!!!!!!! i'm tom ridgepelt !!!!!
+- hello!!!!!!!
 - he/him !!!!
 - learning dutch on... you guessed it... duolingo !!!
 - i'll do art requests NOT for free !!!
