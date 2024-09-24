@@ -1,8 +1,8 @@
 - hello!!!!!!!
 - he/him !!!!
-- learning dutch on... you guessed it... duolingo !!!
+- learning dutch, finnish and german on... you guessed it... duolingo !!!
 - i'll do art requests NOT for free !!!
-- you can contact me at "ridgep3lts_haven." on discord !!!!!
+- you can contact me at "https.joostkitty.nl" on discord !!!!!
 
 <!---
 tomridgepelt/tomridgepelt is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
